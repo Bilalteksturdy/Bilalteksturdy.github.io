@@ -1,1 +1,0 @@
-# Bilalteksturdy.github.io
